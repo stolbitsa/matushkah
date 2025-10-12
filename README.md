@@ -5,7 +5,7 @@
 ![rings-66620_1280](https://github.com/user-attachments/assets/637539bb-d2cd-4e65-b5bb-42da360bff67)
 
 Также рекомендуем пройти этот урок: 
-![](https://github.com/user-attachments/assets/ec08935c-138b-4043-bb92-6ee91149e255 =100x100)
+![](https://github.com/user-attachments/assets/ec08935c-138b-4043-bb92-6ee91149e255 =200x200)
 stolbitsa.com/stolbitsa/matushka
 <br><br>
 
@@ -18,9 +18,7 @@ The song "Matushka Zemlya Belaya Berezonka" (originally by Tatyana Kurtukova) pe
 ![rings-66620_1280](https://github.com/user-attachments/assets/637539bb-d2cd-4e65-b5bb-42da360bff67)
 
 We also recommend taking this lesson: 
-![](https://github.com/user-attachments/assets/ec08935c-138b-4043-bb92-6ee91149e255 =100x100)
+![](https://github.com/user-attachments/assets/ec08935c-138b-4043-bb92-6ee91149e255 =200x200)
 stolbitsa.com/stolbitsa/matushka
 <br><br>
-
-![](https://github.com/user-attachments/assets/e64b3c36-bc0f-4bd6-9edc-2604cb62fbdf)
 
