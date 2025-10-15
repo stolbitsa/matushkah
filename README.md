@@ -22,6 +22,3 @@ We also recommend taking this lesson:
 stolbitsa.com/stolbitsa/matushka
 <br><br>
 
-
-![](https://github.com/user-attachments/assets/7825671c-df01-4e1b-b00a-6bf437c65f5d)
-![](https://github.com/user-attachments/assets/030dc4f7-10fd-4913-8165-def5db1f57d9)
